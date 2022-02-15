@@ -9,5 +9,7 @@ DogeKingFloki believes strongly in decentralization, holding this value at the c
 
 # Follow Us
 Web: https://dogekingfloki.com/
+
 Twitter:https://twitter.com/DogeKingFloki
+
 Telegram:https://t.me/dogekingfloki
